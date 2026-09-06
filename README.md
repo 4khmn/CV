@@ -1,0 +1,1 @@
+[Открыть резюме (PDF)](https://4khmn.github.io/CV/Akhmin_DS_CV.pdf)
